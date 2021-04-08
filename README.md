@@ -1,4 +1,4 @@
-PH-Section-5
+Section 5. Professional Help
 ==========
 
 So you have chosen to get professional help. That&#39;s great! Know that you&#39;re not only helping yourself in this situation, but also the people around you. Being more aware of our situation and knowing how to cope and deal with mental health illnesses is a definite step in the right direction. But remember, this is only a part of the recovery process. After seeking professional help, talk to someone whom you trust and you know cares about you. And then you two can decide from then on what to do. Good luck and God bless you!

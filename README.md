@@ -93,7 +93,7 @@ Contact Number:
 
 - (02) 8 426 6496 <br/><br/>
 
-======
+---
 
 **Find more at:**
 http://www.silakbo.ph/help/
